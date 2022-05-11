@@ -10,7 +10,7 @@
   - Nationality: Indian.
   
 
-  - Currently Residing in Jhansi, Uttar Pradesh, India.
+  - Currently in Jhansi, Uttar Pradesh, India.
   
   ![ Makima ](https://github-readme-stats.vercel.app/api/top-langs/?username=Yoriichi-Tsugikuni&theme=blue-Red)
   
