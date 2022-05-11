@@ -1,6 +1,6 @@
 ## Hi I'm Makima <img src="https://user-images.githubusercontent.com/1303154/88677602-1635ba80-d120-11ea-84d8-d263ba5fc3c0.gif" width="28px" alt="Whats Up">
 
-![](https://tenor.com/bKOjb.gif)
+![](https://64.media.tumblr.com/65c248d1186e3294882d547a614b6e04/db28d7cde07f65e6-43/s500x750/768fbb1b9348442e8fccdf891fd2d3c28768b4db.gifv)
 
 ### About Me:
 
