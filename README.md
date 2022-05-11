@@ -12,7 +12,7 @@
 
   - Currently Residing in Jhansi, Uttar Pradesh, India.
   
-  ![ Makima ](https://github-readme-stats.vercel.app/api/top-langs/?username=Control-Devil&theme=blue-Red)
+  ![ Makima ](https://github-readme-stats.vercel.app/api/top-langs/?username=Yoriichi-Tsugikuni&theme=blue-Red)
   
 
  </i> 
