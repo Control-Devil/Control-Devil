@@ -37,6 +37,6 @@
 
 ## Stats
 
-[![github stats](https://github-readme-stats.vercel.app/api?username=Yoriichi-Tsugikuni&show_icons=true&theme=radical)](https://github.com/Control-Devil)
+[![github stats](https://github-readme-stats.vercel.app/api?username=Control-Devil&show_icons=true&theme=radical)](https://github.com/Control-Devil)
 
 
