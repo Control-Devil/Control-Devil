@@ -1,6 +1,6 @@
 ## Hi I'm Makima.
 
-![](https://media.tenor.com/images/8cf38543eebff103df6f1ec2730a5bde/tenor.gif)
+![](https://c.tenor.com/4yT5YhPkJpwAAAAM/luix-dextructor-makima.gif)
 
 ### About Me:
 
